@@ -48,3 +48,16 @@
 - להמשך: אפשר להוסיף קבצי mp4 ישירות כ-"בית 55.mp4" וכו'.
 
 נוסף ב-29.09.2026
+
+---
+
+## סרטונים שנוספו לריפו (דרך שרת זמני WARP) - 30.09.2026
+
+| קובץ | תיאור | מקור |
+|------|--------|------|
+| בית 55.mp4 | **חברים משכנעים** – Friends Tell Man To Come To Cricket Game Dressed As A Woman | https://www.youtube.com/watch?v=V0B-68J8UhU |
+| בית 56.mp4 | **חברים משכנעים** – We Made Our Bro Buy a Girl Dress | https://www.youtube.com/watch?v=jluj8J0OsR8 |
+| בית 57.mp4 | **חבר לובש שמלה** – my friend wearing girl dress and hug random people | https://www.youtube.com/watch?v=Zvu-9exfeO4 |
+| בית 58.mp4 | Gender Swap Challenge – wearing girlfriend's clothes (הימור) | https://www.youtube.com/watch?v=TP9WVqOHBxg |
+
+עדיפות: 55, 56, 57 (חברים/חברות משכנעים).
