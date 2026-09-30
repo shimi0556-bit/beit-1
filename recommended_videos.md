@@ -61,3 +61,15 @@
 | בית 58.mp4 | Gender Swap Challenge – wearing girlfriend's clothes (הימור) | https://www.youtube.com/watch?v=TP9WVqOHBxg |
 
 עדיפות: 55, 56, 57 (חברים/חברות משכנעים).
+
+## סרטונים נוספים (בית 59–63) – דרך WARP זמני – 01.10.2026
+
+| קובץ | תיאור | מקור | אורך |
+|------|--------|------|------|
+| בית 59.mp4 | **MAN IN DRESS PRANK ON BRO’S** – תגובות של חברים | https://www.youtube.com/watch?v=JdTlIy4GNTs | ~12.5 דק׳ |
+| בית 60.mp4 | **PRANKING my gf** by dressing in her clothes | https://www.youtube.com/watch?v=6E0kaeFvt9o | ~3 דק׳ |
+| בית 61.mp4 | Man dressed as girl pranks people | https://www.youtube.com/watch?v=qKaVXFXmbi4 | ~16 שנ׳ |
+| בית 62.mp4 | I pranked friends with a dress | https://www.youtube.com/watch?v=-PN1W3X_pWw | ~17 שנ׳ |
+| בית 63.mp4 | **We Made Our Bro Buy a Girl Dress** (גרסה מלאה) | https://www.youtube.com/watch?v=mCm3WoApYCs | ~4.5 דק׳ |
+
+עדיפות גבוהה: 55, 56, 59, 60, 63 (חברים/חברה משכנעים או מתיחה על חברים).
