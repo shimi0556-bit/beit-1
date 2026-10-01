@@ -111,3 +111,19 @@
 | בית 82.mp4 | **Giving My Best-Guy-Mate A Makeover** (Zoella) – חברה מלבישה/מאפרת חבר | https://www.youtube.com/watch?v=J7jYSPoAowk | ⭐⭐⭐ הלבשה + איפור |
 | בית 83.mp4 | Doing My Guy Friend’s Makeup – חברה מאפרת חבר | https://www.youtube.com/watch?v=1ENGi7Ye84I | ⭐⭐ איפור |
 
+
+## בית 84–95 – הלבשה בכפייה (חברה/חברים מאלצים) – 01.10.2026
+
+| קובץ | תיאור | מקור | התאמה |
+|------|--------|------|--------|
+| בית 84.mp4 | **How to Force BF Crossdress Step 6** – שמלה (Carrie) | https://www.youtube.com/watch?v=w54629ozxlM | ⭐⭐⭐ כפייה |
+| בית 85.mp4 | **My Friends Turned Me into a Girl** – חברות מלבישות | https://www.youtube.com/watch?v=4qyYFNn1Qc0 | ⭐⭐⭐ חברות + כפייה |
+| בית 86.mp4 | Transforming my friend into a girl | https://www.youtube.com/watch?v=8OQqc_xffwc | ⭐⭐⭐ |
+| בית 87.mp4 | Men Try On Women's Clothing | https://www.youtube.com/watch?v=nTPKB4mpPWE | ⭐⭐ |
+| בית 88.mp4 | CAUGHT WEARING MY GIRLFRIEND CLOTHES | https://www.youtube.com/watch?v=tbUSQSgFTT4 | ⭐⭐ |
+| בית 89.mp4 | **בעברית** – אנחנו גברים שלובשים חצאית (כאן) | https://www.youtube.com/watch?v=rSvIOYNR5tA | ⭐⭐⭐ עברית |
+| בית 90.mp4 | Force BF Crossdress Step 2 – לק | https://www.youtube.com/watch?v=h4wekH2AkuQ | ⭐⭐⭐ סדרת כפייה |
+| בית 92.mp4 | Force BF Crossdress Step 5 – שיער+איפור | https://www.youtube.com/watch?v=oo3CnFpUKwI | ⭐⭐⭐ |
+| בית 94.mp4 | Force BF Crossdress Step 10 – עקבים | https://www.youtube.com/watch?v=7zq_IsDeqlI | ⭐⭐⭐ |
+| בית 95.mp4 | How to Force BF Crossdress Best of 2013 | https://www.youtube.com/watch?v=RwXTdCGYkKc | ⭐⭐⭐ |
+
