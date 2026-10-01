@@ -73,3 +73,16 @@
 | בית 63.mp4 | **We Made Our Bro Buy a Girl Dress** (גרסה מלאה) | https://www.youtube.com/watch?v=mCm3WoApYCs | ~4.5 דק׳ |
 
 עדיפות גבוהה: 55, 56, 59, 60, 63 (חברים/חברה משכנעים או מתיחה על חברים).
+
+## סרטונים נוספים (בית 64–70) – 01.10.2026
+
+| קובץ | תיאור | מקור | עדיפות |
+|------|--------|------|--------|
+| בית 64.mp4 | IM GAY PRANK – לובש שמלה של החברה | https://www.youtube.com/watch?v=3nQ5ASm3bek | ⭐⭐⭐ |
+| בית 65.mp4 | **חברה מלבישה אותו** כבת ויוצאים לציבור | https://www.youtube.com/watch?v=rcrM4YpiDJM | ⭐⭐⭐ |
+| בית 66.mp4 | לובש בגדי חברה – רואה איך היא מגיבה | https://www.youtube.com/watch?v=5kVfWDtbxMA | ⭐⭐⭐ |
+| בית 67.mp4 | Wearing my gf's clothes PRANK (קצר) | https://www.youtube.com/watch?v=rDPCbo-7MwI | ⭐⭐ |
+| בית 68.mp4 | Best Man בשמלת כלה – פרינק על החתן | https://www.youtube.com/watch?v=ys0ZEfZkkvA | ⭐⭐ |
+| בית 69.mp4 | **אחות משכנעת** – My Sister Made Me Wear This | https://www.youtube.com/watch?v=DmBq3xngblc | ⭐⭐⭐ |
+| בית 70.mp4 | LEAVING HOUSE WEARING PINK DRESS – תגובות | https://www.youtube.com/watch?v=BHAVMniNKI8 | ⭐⭐ |
+
