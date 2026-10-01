@@ -100,3 +100,14 @@
 
 הערה: סרטונים בעברית מדויקים על "חברות מלבישות + עגילי חישוק בכפייה" כמעט לא קיימים ביוטיוב. נאספו הקרובים ביותר (עגילים אמיתיים + הלבשה/פמיניזציה ע"י חברה/חברים).
 
+
+## בית 79–83 – חברה נוקבת עגילים / מלבישה בחור – 01.10.2026
+
+| קובץ | תיאור | מקור | התאמה |
+|------|--------|------|--------|
+| בית 79.mp4 | **I PIERCED MY BOYFRIEND'S EARS WITH A NEEDLE** – הפסיד הימור, חברה נוקבת | https://www.youtube.com/watch?v=6wNB75RoHU0 | ⭐⭐⭐ עגילים + כפייה קלה |
+| בית 80.mp4 | ZACH GETS HIS EARS PIERCED – חברה לוקחת את החבר לנקב | https://www.youtube.com/watch?v=W-x8-iyX6hU | ⭐⭐⭐ עגילים |
+| בית 81.mp4 | Getting My Ears Pierced To See How She Reacts | https://www.youtube.com/watch?v=AE3KtrngO5o | ⭐⭐ תגובת חברה |
+| בית 82.mp4 | **Giving My Best-Guy-Mate A Makeover** (Zoella) – חברה מלבישה/מאפרת חבר | https://www.youtube.com/watch?v=J7jYSPoAowk | ⭐⭐⭐ הלבשה + איפור |
+| בית 83.mp4 | Doing My Guy Friend’s Makeup – חברה מאפרת חבר | https://www.youtube.com/watch?v=1ENGi7Ye84I | ⭐⭐ איפור |
+
