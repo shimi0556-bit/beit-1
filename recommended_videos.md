@@ -86,3 +86,17 @@
 | בית 69.mp4 | **אחות משכנעת** – My Sister Made Me Wear This | https://www.youtube.com/watch?v=DmBq3xngblc | ⭐⭐⭐ |
 | בית 70.mp4 | LEAVING HOUSE WEARING PINK DRESS – תגובות | https://www.youtube.com/watch?v=BHAVMniNKI8 | ⭐⭐ |
 
+
+## בית 71–77 – עגילים + חברות/חברה מלבישות (עדיפות חישוקים) – 01.10.2026
+
+| קובץ | תיאור | מקור | התאמה |
+|------|--------|------|--------|
+| בית 71.mp4 | **I PIERCED MY BOYFRIENDS EAR** – חברה נוקבת עגילים לבחור (בכה) | https://www.youtube.com/watch?v=c49VSI9EFoM | ⭐⭐⭐ עגילים אמיתיים |
+| בית 72.mp4 | **EAR PIERCING CHALLENGE** – חברים נוקבים זה לזה | https://www.youtube.com/watch?v=dc6TncXVrhI | ⭐⭐⭐ עגילים |
+| בית 73.mp4 | **בעברית** – זרקנו חץ למפה ועשינו עגילים (עמנואל לוי) | https://www.youtube.com/watch?v=wCmiCvpy7vA | ⭐⭐⭐ עברית + עגילים |
+| בית 75.mp4 | How To Make Your Boyfriend Crossdress – שלב 1 | https://www.youtube.com/watch?v=z7dMcL_K3n4 | ⭐⭐⭐ חברה מלבישה |
+| בית 76.mp4 | EAR PIERCING CHALLENGE – Dolan Twins | https://www.youtube.com/watch?v=M3fxbN3cjDE | ⭐⭐ עגילים |
+| בית 77.mp4 | Should I let her PUT IT IN = **נוקבת לו עגילים** (שיחות עם חברים) | https://www.youtube.com/watch?v=wFvZ35QynQQ | ⭐⭐⭐ עגילים + שכנוע |
+
+הערה: סרטונים בעברית מדויקים על "חברות מלבישות + עגילי חישוק בכפייה" כמעט לא קיימים ביוטיוב. נאספו הקרובים ביותר (עגילים אמיתיים + הלבשה/פמיניזציה ע"י חברה/חברים).
+
